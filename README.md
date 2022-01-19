@@ -9,3 +9,5 @@
 "Fíate de Cristo y no cenes y verás mañana que hambre tienes"
 
 "Ya hemos echado demasiada pintura en esta pared"
+
+"Para este viaje no necesito alforjas"
