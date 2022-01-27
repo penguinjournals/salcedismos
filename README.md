@@ -11,3 +11,5 @@
 "Ya hemos echado demasiada pintura en esta pared"
 
 "Para este viaje no necesito alforjas"
+
+"Todo eran risas hasta que descubrimos que el tartamudo lo que quería era jamón" (by Miguel Ángel)
