@@ -13,3 +13,5 @@
 "Para este viaje no necesito alforjas"
 
 "Todo eran risas hasta que descubrimos que el tartamudo lo que quería era jamón" (by Miguel Ángel)
+
+"Todo bien, china chana"
