@@ -39,3 +39,8 @@ Si
 
 Pues éntrenme
 ```
+
+```
+Quien cada duro y pede fuerte, no tiene miedo a la muerte
+```Quien cada duro y pede fuerte, no tiene miedo a la muerte
+```
