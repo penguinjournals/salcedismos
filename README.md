@@ -42,7 +42,6 @@ Pues éntrenme
 
 ```
 Quien caga duro y pede fuerte, no tiene miedo a la muerte
-```Quien caga duro y pede fuerte, no tiene miedo a la muerte
 ```
 
 
