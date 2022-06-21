@@ -48,3 +48,8 @@ Quien caga duro y pede fuerte, no tiene miedo a la muerte
 ```
 No se es mas borrico por mas fuerte rebuznar
 ```
+
+```
+Huele a matanza
+```
+
